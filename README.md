@@ -1,0 +1,1 @@
+# sp-6-sinif-matematik-spoiler-soru-bankasi-2022-32
